@@ -1,1 +1,2 @@
-THESE JAVA SCRIPTS IS MADE BY ME
+https://discord.com/invite/dev
+Cool Fortnite Hybrid Private Server
